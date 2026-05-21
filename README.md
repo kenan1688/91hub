@@ -8,7 +8,7 @@
 
 牢记官方邮箱：yeqi451@gmail.com
 
-方法2：关注 91hua Twitter：https://x.com/gIe57734
+方法2：关注 91hua Twitter：https://x.com/qjjms56549
 
 方法3：加入 91 hub Telegram公告频道：https://t.me/w91Hub_com
 
@@ -17,8 +17,6 @@
 https://91hubw.com/archives/9218
 
 联系我们： 商务合作 🤝 https://ttt1.com/
-
-投稿问题反馈 👉 https://t.me/gushu555
 
 投稿问题反馈 👉 https://t.me/qwe12575
 
