@@ -1,6 +1,6 @@
 91Hub官网最新地址
 
-91Hub最新入口：https://9ff.uvtvizbp.cc/
+91Hub最新入口：https://b150.qspfvdua.cc
 
 91Hub中转入口：https://utrcuvik.cc/ 失联后如何获取最新地址：
 
