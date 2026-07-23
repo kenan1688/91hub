@@ -16,7 +16,7 @@
 
 https://91hubw.com/archives/12129/
 
-联系我们： 商务合作 🤝 https://ttt1.com/
+联系我们： 商务合作 🤝 https://a7k9x.bvueg3-t1t1.icu?channel=XHWJ001
 
 投稿问题反馈 👉 https://t.me/qwe12575
 
