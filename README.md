@@ -1,8 +1,8 @@
 91Hub官网最新地址
 
-91Hub最新入口：https://c1ae.ujsyyvhpd.com
+91Hub最新入口：https://e2bae.adnogmboz.com
 
-91Hub中转入口：https://xcgaxkwwk.cc 失联后如何获取最新地址：
+91Hub中转入口：https://fckinpefh.cc 失联后如何获取最新地址：
 
 方法1：邮箱发送任意邮件至 官方邮箱可获取最新地址
 
@@ -12,9 +12,9 @@
 
 方法3：加入 91 hub Telegram公告频道：https://t.me/w91Hub_com
 
-近期热瓜鉴升版：推特福利姬little-sula 激情做爱全程主动 无套中出嫩穴白浆四溢
+近期热瓜鉴升版：复旦大学林诗雅酷似王祖贤 性爱视频曝光 被无套传教士姿势猛干
 
-https://91hubw.com/archives/12415/
+https://91hubw.com/archives/12475/
 
 联系我们： 商务合作 🤝 https://a7k9x.bvueg3-t1t1.icu?channel=XHWJ001
 
