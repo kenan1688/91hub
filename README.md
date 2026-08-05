@@ -1,6 +1,6 @@
 91Hub官网最新地址
 
-91Hub最新入口：https://64b.adnogmboz.com
+91Hub最新入口：https://91e2.adnogmboz.com
 
 91Hub中转入口：https://haxuikvaj.cc 失联后如何获取最新地址：
 
@@ -12,9 +12,9 @@
 
 方法3：加入 91 hub Telegram公告频道：https://t.me/w91Hub_com
 
-近期热瓜鉴升版：抖音快手550万粉汤园可甜了 紫色情趣内衣魅惑 床上搔首弄姿太撩人
+近期热瓜鉴升版：抖音长春05年高颜值小美 丰臀巨乳主动含肉棒 女上位蜜桃臀摇摆榨精
 
-https://91hubw.com/archives/12536/
+https://91e2.adnogmboz.com/archives/12563/
 
 联系我们： 商务合作 🤝 https://a7k9x.bvueg3-t1t1.icu?channel=XHWJ001
 
