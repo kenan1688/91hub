@@ -1,6 +1,6 @@
 91Hub官网最新地址
 
-91Hub最新入口：https://91e2.adnogmboz.com
+91Hub最新入口：https://f97.adnogmboz.com
 
 91Hub中转入口：https://haxuikvaj.cc 失联后如何获取最新地址：
 
@@ -12,9 +12,9 @@
 
 方法3：加入 91 hub Telegram公告频道：https://t.me/w91Hub_com
 
-近期热瓜鉴升版：抖音长春05年高颜值小美 丰臀巨乳主动含肉棒 女上位蜜桃臀摇摆榨精
+近期热瓜鉴升版：安徽亳州公职人员白海涛婚内转出轨被通报 妻子起诉小三 法院判决返还9万多
 
-https://91e2.adnogmboz.com/archives/12563/
+https://91hubw.com/archives/12597/
 
 联系我们： 商务合作 🤝 https://a7k9x.bvueg3-t1t1.icu?channel=XHWJ001
 
