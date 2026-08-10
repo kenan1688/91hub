@@ -1,3 +1,7 @@
+91Hub官网永久域名
+
+https://91hubw.com/
+
 91Hub官网最新地址
 
 91Hub最新入口：https://2ca.adnogmboz.com
