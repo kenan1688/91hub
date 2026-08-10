@@ -1,6 +1,4 @@
-91Hub官网永久域名
-
-https://91hubw.com/
+91Hub官网永久域名：https://91hubw.com/
 
 91Hub官网最新地址
 
