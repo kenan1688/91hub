@@ -1,6 +1,6 @@
 91Hub官网永久域名：https://91hubw.com/
 
-91Hub最新入口：https://2ca.adnogmboz.com
+91Hub最新入口：https://682f4.adnogmboz.com
 
 91Hub中转入口：https://haxuikvaj.cc 失联后如何获取最新地址：
 
@@ -12,9 +12,9 @@
 
 方法3：加入 91 hub Telegram公告频道：https://t.me/w91Hub_com
 
-近期热瓜鉴升版：山东刘娜收60万彩礼婚后两月杀夫被执行死刑 后曝出孩子竟是丈夫亲兄弟
+近期热瓜鉴升版：墨西哥网红塞萨尔加斯特鲁姆 TikTok直播时突遭爆头枪杀 镜头意外录下现场惨状
 
-https://91hubw.com/archives/12657/
+https://91hubw.com/archives/12689/
 
 联系我们： 商务合作 🤝 https://a7k9x.bvueg3-t1t1.icu?channel=XHWJ001
 
