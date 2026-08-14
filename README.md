@@ -1,6 +1,6 @@
 91Hub官网永久域名：https://91hubw.com/
 
-91Hub最新入口：https://682f4.adnogmboz.com
+91Hub最新入口：https://f232.1c1qc.cc
 
 91Hub中转入口：https://haxuikvaj.cc 
 
@@ -14,9 +14,9 @@
 
 方法3：加入 91 hub Telegram公告频道：https://t.me/w91Hub_com
 
-近期热瓜鉴升版：墨西哥网红塞萨尔加斯特鲁姆 TikTok直播时突遭爆头枪杀 镜头意外录下现场惨状
+近期热瓜鉴升版：沈阳有鲤剧本杀大型吃瓜现场 男生压桌亲脖子 女生被按跪地扇脸 其他人偷偷掏手机录像
 
-https://91hubw.com/archives/12689/
+https://91hubw.com/archives/12740/
 
 联系我们： 商务合作 🤝 https://a7k9x.bvueg3-t1t1.icu?channel=XHWJ001
 
