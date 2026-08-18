@@ -1,6 +1,6 @@
 91Hub官网永久域名：https://91hubw.com/
 
-91Hub最新入口：https://f232.ogmqj.cc
+91Hub最新入口：https://f232.9jht6.cc
 
 91Hub中转入口：https://haxuikvaj.cc 
 
