@@ -1,6 +1,6 @@
 91Hub官网永久域名：https://91hubw.com/
 
-91Hub最新入口：https://f232.qmp3o.cc
+91Hub最新入口：https://f232.nufix.cc
 
 91Hub中转入口：https://haxuikvaj.cc 
 
@@ -14,9 +14,9 @@
 
 方法3：加入 91 hub Telegram公告频道：https://t.me/w91Hub_com
 
-近期热瓜鉴升版：抖音百万粉网红戴馨菲被曝反差 清纯人设下素质与暧昧传闻缠身 真相引热议
+近期热瓜鉴升版：Jennie东京夏日音乐节 大胆热舞衣服移位 露点画面瞬间疯传
 
-https://91hubw.com/archives/12900/
+https://91hubw.com/archives/12779/
 
 联系我们： 商务合作 🤝 https://a7k9x.bvueg3-t1t1.icu?channel=XHWJ001
 
