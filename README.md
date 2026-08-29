@@ -1,6 +1,6 @@
 91Hub官网永久域名：https://91hubw.com/
 
-91Hub最新入口：https://f232.nufix.cc
+91Hub最新入口：https://f232.xirum.cc
 
 91Hub中转入口：https://haxuikvaj.cc 
 
@@ -14,9 +14,9 @@
 
 方法3：加入 91 hub Telegram公告频道：https://t.me/w91Hub_com
 
-近期热瓜鉴升版：Jennie东京夏日音乐节 大胆热舞衣服移位 露点画面瞬间疯传
+近期热瓜鉴升版：刘大锤曝包文婧二胎刚满周岁 包贝尔深夜密会红发女7小时 出轨行为好似嫖娼
 
-https://91hubw.com/archives/12779/
+https://91hubw.com/archives/13002/
 
 联系我们： 商务合作 🤝 https://a7k9x.bvueg3-t1t1.icu?channel=XHWJ001
 
