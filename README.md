@@ -1,6 +1,6 @@
 91Hub官网永久域名：https://91hubw.com/
 
-91Hub最新入口：https://f232.xirum.cc
+91Hub最新入口：https://answer.kirex.cc/
 
 91Hub中转入口：https://haxuikvaj.cc 
 
@@ -10,7 +10,7 @@
 
 牢记官方邮箱：yeqi451@gmail.com
 
-方法2：关注 91hua Twitter：https://x.com/91hubw1_com
+方法2：关注 91hua Twitter：https://x.com/Mxq91Hubw
 
 方法3：加入 91 hub Telegram公告频道：https://t.me/w91Hub_com
 
