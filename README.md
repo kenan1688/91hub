@@ -1,6 +1,6 @@
 91Hub官网永久域名：https://91hubw.com/
 
-91Hub最新入口：https://answer.kirex.cc/
+91Hub最新入口：https://oy262.ld3fb.cc
 
 91Hub中转入口：https://haxuikvaj.cc 
 
