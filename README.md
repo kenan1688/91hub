@@ -10,9 +10,9 @@
 
 牢记官方邮箱：yeqi451@gmail.com
 
-方法2：关注 91hua Twitter：https://x.com/Mxq91Hubw
+方法2：关注 91hub Twitter：https://x.com/Mxq91Hubw
 
-方法3：加入 91 hub Telegram公告频道：https://t.me/w91Hub_com
+方法3：加入 91hub Telegram公告频道：https://t.me/w91Hub_com
 
 近期热瓜鉴升版：刘大锤曝包文婧二胎刚满周岁 包贝尔深夜密会红发女7小时 出轨行为好似嫖娼
 
